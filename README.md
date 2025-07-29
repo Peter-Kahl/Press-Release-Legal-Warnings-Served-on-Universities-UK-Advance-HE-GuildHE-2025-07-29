@@ -2,7 +2,7 @@
 
 #### Formal notices sent demanding accountability over fiduciary breaches, governance conflicts, and public-interest duties within UK Higher Education organisations
 
-![alt text](https://github.com/Peter-Kahl/Press-Release-Legal-Warnings-Served-on-Universities-UK-Advance-HE-GuildHE-2025-07-29/blob/main/advance_he_guildhe_universities_UK_para.jpg.jpg?raw=true)
+![alt text](https://github.com/Peter-Kahl/Press-Release-Legal-Warnings-Served-on-Universities-UK-Advance-HE-GuildHE-2025-07-29/blob/main/advance_he_guildhe_universities_UK_para.jpg?raw=true)
 
 by Peter Kahl; independent multidisciplinary researcher
 
